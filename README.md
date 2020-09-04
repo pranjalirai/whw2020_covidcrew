@@ -7,7 +7,7 @@
 
 •	Data Science Lead - 
 
-•	Github with Victor and Tian's nwm tutorial's for COVID19 - Christina  
+•	Github - Victor Cannestro 
 
 •	Environmental Public Health Context - Jill Falman and Elaine Faustman 
 
